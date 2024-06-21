@@ -12,4 +12,4 @@ exato momento sofrendo para descobrir algum bug (socorro).
 ### Para contato!
 - 📧 brunocustodiocorreia9@gmail.com / 📞 11985597911
 
-![](https://tenor.com/pI594FMBOzN.gif)
+![](https://media1.tenor.com/m/tUcFGAJimf0AAAAd/yuji-itadori-jujutsu-kaisen.gif)
