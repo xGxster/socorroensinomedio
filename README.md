@@ -12,4 +12,4 @@ exato momento sofrendo para descobrir algum bug (socorro).
 ### Para contato!
 - 📧 brunocustodiocorreia9@gmail.com / 📞 11985597911
 
-![](https://media1.tenor.com/m/nh4tzup-bhIAAAAC/monkey-monkey-dancing.gif)
+![](https://media1.tenor.com/m/UyjbZDEZkPEAAAAd/worried-monkey-worried.gif)
