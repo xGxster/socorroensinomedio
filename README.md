@@ -6,7 +6,7 @@ exato momento sofrendo para descobrir algum bug (socorro).
 ### Ocupação
 
 - Estudando Alura. 👾
-- Estou aprendendo a línguagem JavaScript. 💻
+- Estou aprendendo a línguagem JavaScript, HTML, CSS e LUA. 💻
 - Uso do GitHub para compartilhar meus projetos e para minha organização pessoal.
 
 ### Para contato!
